@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning advance VA tools, project management, and creative design techniques
 - 💞️ I’m looking to collaborate on Executive and administrative support, Data and project management, Finance tasks like accounts payable, and design for businesses
 - 📫 How to reach me:reachbeby@gmail.com | 🌍 LinkedIn:https://www.linkedin.com/in/eberennanworisa/
-- 😄 Pronouns: 
-- ⚡ Fun fact: Is journey from accounting to business solutions which has taught me that every challenge is just an opportunity to create something beautifully efficient. In my free time, I like to practice music notes.
+- 😄 Pronouns: I
+- ⚡ Fun fact: Is my journey from accounting to business solutions which has taught me that every challenge is just an opportunity to create something beautifully efficient. In my free time, I like to practice music notes.
 
 
 <!---
